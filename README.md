@@ -14,9 +14,8 @@ Mi enfoque colaborativo, habilidades de comunicación y capacidad para adaptarme
 🔍 Objetivo:
 Busco mi primera oportunidad como Data Engineer, donde pueda aplicar mi conocimiento técnico y continuar desarrollándome en un entorno dinámico. Listo para enfrentar desafíos y contribuir al éxito de proyectos innovadores.
 
-¡Estoy emocionado por comenzar mi viaje en la ingeniería de datos y contribuir al éxito de tu equipo! Conectemos para explorar cómo puedo aportar a tus proyectos. 🌐📈 #DataEngineer #DataScience #InnovaciónTecnológica #Teamwork
+¡Estoy emocionado por comenzar mi viaje en la ingeniería de datos y contribuir al éxito de tu equipo! Conectemos para explorar cómo puedo aportar a tus proyectos. 🌐
 
-Links relevantes:
 Mail: nicomusmusante@gmail.com
 
 LinkeIn: www.linkedin.com/in/nicolas-musante123
