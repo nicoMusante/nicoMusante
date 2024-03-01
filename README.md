@@ -18,5 +18,7 @@ Busco mi primera oportunidad como Data Engineer, donde pueda aplicar mi conocimi
 
 Links relevantes:
 Mail: nicomusmusante@gmail.com
+
 LinkeIn: www.linkedin.com/in/nicolas-musante123
+
 Portafolio Web: nicolasmusante.netlify.app
